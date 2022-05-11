@@ -248,5 +248,8 @@ MasterChef 2012-13
 
 Zee Cine Star Ki Khoj 2014
 
+## Playback Singing
+Love Hai Yaar Accepted
+
 
 
