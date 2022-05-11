@@ -22,7 +22,7 @@ Qualification - M.A. Theatre, M.A. Music, M.S.W., P.G. Diploma Public Relations 
 
 Skills - Acting, Singing, Dancing
 
-Work Experience - 16 yrs
+Work Experience - 16 years (2022)
 
 ## Movies 
 Silent Heroes
@@ -172,7 +172,7 @@ Tajmahal Ka Tender
 
 Chipko
 
-Dharti Ki Peedha
+Dharti Ki Peeda
 
 Antardwand Yayati
 
@@ -197,29 +197,29 @@ Surajmukhi Aur Hamlet
 Sweet & Sour 
 
 ## Theatre  
-Almost all Auditoriums of Dehradun & Mumbai
+Almost all auditoriums of Dehradun & Mumbai
 
-Secretary of Abhirang, Natya Acedamy, Dehradun
+Secretary of Abhirang, Natya Acedamy, Dehradun (2008-11)
 
 ## Theatre festivals 
-Uttarakhand Festivals
+Uttarakhand Theatre Festivals
 
-Delhi
+Delhi Theatre Festival IGNCA
 
-Yatri
+Yatri Theatre Festival, Mumbai
 
-Prithvi
+Prithvi Theatre Festival, Mumbai
 
-Ananda
+Ananda Theatre Festival, NCPA, Mumbai
 
 ## Commercials
 Google Pay
 
 True Caller
 
-Rupa with Ranvir Singh
+Rupa (with Ranvir Singh)
 
-Idea 4G 
+!dea 4G 
 
 Children's Hope India
 
@@ -241,5 +241,12 @@ Danube Dubai
 
 Centre Fresh
 
-Government Awareness Ads
+Government Awareness Campaigns
+
+## Reality Shows
+MasterChef 2012-13
+
+Zee Cine Star Ki Khoj 2014
+
+
 
