@@ -1,6 +1,8 @@
 # Babita Anant
 
-Babita Anant is a professional actress with  16+ years experience in Bollywood, TV Serials, Web Series and Commercials.
+Babita Anant is a professional actress with  16+ years experience (2022) in Bollywood, TV Serials, Web Series and Commercials.
+
+Work Place - Mumbai
 
 Home Town - Dehradun
 
@@ -17,8 +19,6 @@ Languages Known - Hindi, English, Pahadi
 Qualification - M.A. Theatre, M.A. Music, M.S.W., P.G. Diploma Public Relations and Advertising, B.Ed., B.Lib. Sc. 
 
 Skills - Acting, Singing, Dancing
-
-Work Experience - 16 Years (2022)
 
 ## Movies 
 Silent Heroes
