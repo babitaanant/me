@@ -1,10 +1,6 @@
 # Babita Anant
 
-Babita Anant has been passionate about acting with experience of 16 years in Bollywood, TV Commercials and Web Series.  
-
-Work Place - Mumbai
-
-Current Location - Mumbai
+Babita Anant is a professional actress with  16+ years experience in Bollywood, TV Serials, Web Series and Commercials.
 
 Home Town - Dehradun
 
@@ -14,7 +10,7 @@ Age - 40+
 
 Height - 5'3"
 
-Weight - 60 KG
+Weight - 60 kg
 
 Languages Known - Hindi, English, Pahadi
 
@@ -22,7 +18,7 @@ Qualification - M.A. Theatre, M.A. Music, M.S.W., P.G. Diploma Public Relations 
 
 Skills - Acting, Singing, Dancing
 
-Work Experience - 16 years (2022)
+Work Experience - 16 Years (2022)
 
 ## Movies 
 Silent Heroes
@@ -43,7 +39,7 @@ Bicycle Boys
 
 Chhu Le Aasmaan
 
-Brahmaastra
+Brahmastra
 
 Blurr
 
