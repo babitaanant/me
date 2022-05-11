@@ -1,0 +1,245 @@
+# Babita Anant
+
+Babita Anant has been passionate about acting with experience of 16 years in Bollywood, TV Commercials and Web Series.  
+
+Work Place - Mumbai
+
+Current Location - Mumbai
+
+Home town - Dehradun
+
+Email ID - babitaartist27@gmail.com
+
+Age - 40+
+
+Height - 5'3"
+
+Weight - 60 KG
+
+Languages known - Hindi, English, Pahadi
+
+Qualification - M.A. Theatre, M.A. Music, M.S.W., P.G. Diploma Public Relations and Advertising, B.Ed., B.Lib. Sc. 
+
+Skills - Acting, Singing, Dancing
+
+Work Experience - 16 yrs
+
+## Movies 
+Silent Heroes
+
+Love Day
+
+Badhai Do
+
+Raees
+
+Helicopter Eela
+
+Dear Zindagi
+
+Raju Bajrangi 
+
+Bicycle Boys 
+
+Chhu Le Aasmaan
+
+Brahmaastra
+
+Blurr
+
+Zindagi Abi Baki Hai
+
+Yog Yatra
+
+Raag Desh
+
+Hotel Mumbai
+
+Satellite Shankar
+
+Mandakini
+
+PM Modi
+
+Bhavpriya
+
+Shershaah
+
+Dil Bechara
+
+Bachcha Gang
+
+The Last Wave
+
+Life Flows On
+
+## Web Series
+Laakhon Mein Ek
+
+Bhak
+
+Undekhi
+
+Tandoor
+
+Hello Mini Season 2 
+
+Shit Yaar
+
+City of Dreams
+
+The Ghost
+
+Pyaas
+
+Chaar Ka Panchnama
+
+## TV Serials
+Jodha Akbar
+
+Tu Aashiqui
+
+Surbhi 
+
+Saabji
+
+Shiksha
+
+Laut Aao Trisha 
+
+Waaris
+
+Zindagi Khatti Meethi
+
+Apke Aa Jane Se
+
+Aisi Deewangi
+
+Prakriti
+
+Sathiya 2
+
+## Episodics
+Mere Sai
+
+CID
+
+Code Red
+
+Saavdhan India 
+
+Crime Alert 
+
+Adalat
+
+## Short Films
+Nayi Raahen
+
+Ayyash Bahu
+
+The Other Way
+
+Beti
+
+Pahal
+
+Khoj
+
+Chaar Dost 
+
+Uljhan
+
+Dulhan
+
+Dahej
+
+## Plays 
+Andha Yug
+
+Girgit
+
+Tiviria
+
+Andher Nagari Chaupat Raja
+
+Bachao Chacha
+
+Desh Ko Aagey Badhao
+
+Rani Nagfani Ki Kahani
+
+Tajmahal Ka Tender
+
+Chipko
+
+Dharti Ki Peedha
+
+Antardwand Yayati
+
+Yampal
+
+Ujyaad
+
+Agrasen Maharaj
+
+Natrang
+
+Pati Patni Aur Court
+
+Hum Paanch
+
+Quad-E-Hayat
+
+Ek Tha Chekhov
+
+Surajmukhi Aur Hamlet
+
+Sweet & Sour 
+
+## Theatre  
+Almost all Auditoriums of Dehradun & Mumbai
+
+Secretary of Abhirang, Natya Acedamy, Dehradun
+
+## Theatre festivals 
+Uttarakhand Festivals
+
+Delhi
+
+Yatri
+
+Prithvi
+
+Ananda
+
+## Commercials
+Google Pay
+
+True Caller
+
+Rupa with Ranvir Singh
+
+Idea 4G 
+
+Children's Hope India
+
+Lenovo
+
+Parle G 
+
+Alpenliebe
+
+Reliance Jio
+
+Stand Up India 
+
+Lupizyme
+
+Bharti axa
+
+Danube Dubai
+
+Centre Fresh
+
+Government Awareness Ads
+
