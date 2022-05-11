@@ -6,7 +6,7 @@ Work Place - Mumbai
 
 Current Location - Mumbai
 
-Home town - Dehradun
+Home Town - Dehradun
 
 Email ID - babitaartist27@gmail.com
 
@@ -16,7 +16,7 @@ Height - 5'3"
 
 Weight - 60 KG
 
-Languages known - Hindi, English, Pahadi
+Languages Known - Hindi, English, Pahadi
 
 Qualification - M.A. Theatre, M.A. Music, M.S.W., P.G. Diploma Public Relations and Advertising, B.Ed., B.Lib. Sc. 
 
